@@ -352,7 +352,7 @@ Qاذكار
 
 Qsupport | اذا لقيت اي غلط ادخل السيرفر لحتى نصلحو 
 
-https://discord.gg/EvwSx6p
+https://discord.gg/sSN7daB
 
 جاري اضافة بعض الاشياء
 ● ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬ ● 
